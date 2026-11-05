@@ -8,7 +8,7 @@
 <details>
   <summary>hi people</summary>
 
-  [romi](https://github.com/Mental lobotomy) [halos](http://github.com/Timjays) ♡ [rika](https://github.com/panacealove) [ivan](https://github.com/dessert-kitty) [aiy](https://github.com/endless-N) [eden](https://github.com/Samu-letter) yara + others in friendlist ^ . ^
+  [romi](https://github.com/Mentallobotomy) [halos](http://github.com/Timjays) ♡ [rika](https://github.com/panacealove) [ivan](https://github.com/dessert-kitty) [aiy](https://github.com/endless-N) [eden](https://github.com/Samu-letter) yara + others in friendlist ^ . ^
 </details>
 
 [新book](https://evildirectorfies.atabook.org/) ㅤㅤㅤ[fluffle](https://fluffle.cc/antagggs)
