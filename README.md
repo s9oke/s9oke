@@ -6,7 +6,7 @@
 ![Alt Text](https://files.catbox.moe/2xfttr.png)
 
 
-ㅤㅤㅤㅤㅤㅤ</div>
+ㅤㅤㅤ</div>
 <details>
   <summary>hi people</summary>
   [romi](https://github.com/Mentallobotomy) ㅤ[halos](http://github.com/Timjays) ㅤㅤㅤ♡ㅤㅤㅤ [rika](https://github.com/panacealove) ㅤ[ivan](https://github.com/dessert-kitty)  ㅤ[eden](https://github.com/Samu-letter) ㅤyara + others in friendlist ^ . ^
