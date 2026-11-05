@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=s9oke&style=plastic)
+![](https://komarev.com/ghpvc/?username=s9oke&style=plastic&label=dumbasses)
 ![Alt Text](https://files.catbox.moe/2xfttr.png)
 
 </div>
