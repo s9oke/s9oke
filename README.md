@@ -1,4 +1,4 @@
-<img width="2048" height="383" alt="IMG_20261106_000544" src="https://github.com/user-attachments/assets/e22092a1-43ec-4289-9b43-cc2969f46067" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://evildirectorfies.atabook.org/) ㅤㅤㅤ[fluffle](https://fluffle.cc/antagggs)
 
 <div align="center">
 
@@ -11,5 +11,3 @@
 
   [romi](https://github.com/Mentallobotomy) ㅤ[halos](http://github.com/Timjays) ㅤㅤㅤ♡ㅤㅤㅤ [rika](https://github.com/panacealove) ㅤ[ivan](https://github.com/dessert-kitty)  ㅤ[eden](https://github.com/Samu-letter) ㅤyara + others in friendlist ^ . ^
 </details>
-
-ㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://evildirectorfies.atabook.org/) ㅤㅤㅤ[fluffle](https://fluffle.cc/antagggs)
