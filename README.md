@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://evildirectorfies.atabook.org/) ㅤㅤㅤ[fluffle](https://fluffle.cc/antagggs)
+ㅤㅤㅤㅤ[新book](https://evildirectorfies.atabook.org/) ㅤㅤㅤ[fluffle](https://fluffle.cc/antagggs)
 
 <div align="center">
 
@@ -8,6 +8,5 @@
 ㅤㅤㅤㅤㅤㅤ</div>
 <details>
   <summary>hi people</summary>
-
   [romi](https://github.com/Mentallobotomy) ㅤ[halos](http://github.com/Timjays) ㅤㅤㅤ♡ㅤㅤㅤ [rika](https://github.com/panacealove) ㅤ[ivan](https://github.com/dessert-kitty)  ㅤ[eden](https://github.com/Samu-letter) ㅤyara + others in friendlist ^ . ^
 </details>
