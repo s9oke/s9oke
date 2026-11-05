@@ -5,7 +5,7 @@
 ![](https://komarev.com/ghpvc/?username=s9oke&label=dumbasses&color=7e7db7)
 ![Alt Text](https://files.catbox.moe/2xfttr.png)
 
-</div>
+ㅤㅤㅤㅤㅤㅤ</div>
 <details>
   <summary>hi people</summary>
 
